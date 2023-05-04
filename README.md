@@ -25,3 +25,15 @@ $خصائص
 
 [+] سهل للمبتدئين!
 
+
+
+![image](https://user-images.githubusercontent.com/107787017/236247895-a11e3069-60fd-4387-b1a9-9f3f9dd3e18b.png)
+
+
+ لشراء الأداة التواصل عبر تلجرام :https://t.me/Joker_plstaeen
+
+
+
+
+
+
